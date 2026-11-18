@@ -23,8 +23,14 @@
 <summary>
   
 </summary>
-$${\color{#f1b3b2} wip\ wip\ wip\ wip }$$
+$${\color{#f1b3b2} About\ Me\ }$$
 
-i'm gonna put stuff here later
+Hi! I'm Dia(Tron) or just Ultron! I'm 23yrs old, born October 9th.<br>
+I am a big fan of jjba & marvel, and a few others. <br>
+I'm open to talking to anyone who enjoy them too! <br>
+  <br>
+I have other ships, but currently Doctor Strange x Ultron is my fixation.<br>
+Anyone is free to talk to me or interact, but be aware I am deeply paranoid and anxious.<br>
+Sometimes I may not respond, I am often off tab and may not see, whisper instead. 
 </details>
 </div>
