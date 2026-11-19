@@ -31,6 +31,7 @@ I'm open to talking to anyone who enjoy them too! <br>
   <br>
 I have other ships, but currently Doctor Strange x Ultron is my fixation.<br>
 Anyone is free to talk to me or interact, but be aware I am deeply paranoid and anxious.<br>
-Sometimes I may not respond, I am often off tab and may not see, whisper instead. 
+Sometimes I may not respond, I am often off tab and may not see, whisper instead. <br>
+I don't befriend minors. I sit on PG server because 18+ is dead tbh
 </details>
 </div>
