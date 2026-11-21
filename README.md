@@ -18,20 +18,3 @@
 <p align="center">
 <img src="https://file.garden/ZlryIogXzRtJW5Bu/SU.png" width="150" height="260%"/><br>
 </p>
-<div align='center'>
-<details>
-<summary>
-  
-</summary>
-$${\color{#f1b3b2} About\ Me\ }$$
-
-Hi! I'm Dia(Tron) or just Ultron! I'm 23yrs old, born October 9th.<br>
-I am a big fan of jjba & marvel, and a few others. <br>
-I'm open to talking to anyone who enjoy them too! <br>
-  <br>
-I have other ships, but currently Doctor Strange x Ultron is my fixation.<br>
-Anyone is free to talk to me or interact, but be aware I am deeply paranoid and anxious.<br>
-Sometimes I may not respond, I am often off tab and may not see, whisper instead. <br>
-I don't befriend minors. I sit on PG server because 18+ is dead tbh
-</details>
-</div>
